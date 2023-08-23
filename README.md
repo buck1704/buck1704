@@ -2,7 +2,7 @@
 
 Nếu cuộc sống tiền không còn quan trọng, thì có nên đi làm không nhỉ?
 
-Tôi là một sinh viên tại Trường Đại học Công Nghệ Giao Thông Vận Tải, nơi tôi đang tìm kiếm định hướng cho sự nghiệp của mình. Tôi khá yêu việc thiết kế và tưởng tượng về các ý tưởng sáng tạo. Tuy nhiên, tôi cũng rất thích mảng công nghệ. Trong tưởng tượng của tôi, tôi sau vài năm nữa sẽ là 1 anh nhân viên văn phòng cho công ty công nghệ nào đó. Ở đấy, tôi sẽ cống hiến hết mình (nô lệ cho tư bản :3 ).
+Tôi khá yêu việc thiết kế và tưởng tượng về các ý tưởng sáng tạo. Tuy nhiên, tôi cũng rất thích mảng công nghệ. Trong tưởng tượng của tôi, tôi sau vài năm nữa sẽ là 1 anh nhân viên văn phòng cho công ty công nghệ nào đó. Ở đấy, tôi sẽ cống hiến hết mình (nô lệ cho tư bản :3 ).
 
 ## Một ít về tôi:
 
