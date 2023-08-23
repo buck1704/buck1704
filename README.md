@@ -10,7 +10,7 @@ Tôi là một sinh viên tại Trường Đại học Công Nghệ Giao Thông 
 - 💻 Tôi đang khám phá nhiều ngôn ngữ lập trình và công nghệ khác nhau.
 - 🎨 Tôi yêu việc thể hiện sự sáng tạo qua việc thiết kế.
 - 🎵 Âm nhạc luôn là nguồn cảm hứng của tôi, tôi thường nghe nhạc mọi lúc mọi nơi.
-- ⚽ Tôi cũng tham gia vào câu lạc bộ tại trường để thể hiện đam mê thể thao của mình.
+- 🔥 Tôi cũng tham gia vào câu lạc bộ tại trường để đốt bớt nhiệt huyết tuổi chẻ.
 
 ### Liên hệ:
 
