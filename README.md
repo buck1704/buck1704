@@ -11,7 +11,7 @@ Tôi khá yêu việc thiết kế và tưởng tượng về các ý tưởng s
 - 🎨 Tôi yêu việc thể hiện sự sáng tạo qua việc thiết kế.
 - 🎵 Âm nhạc luôn là nguồn cảm hứng của tôi, tôi thường nghe nhạc mọi lúc mọi nơi.
 - 🔥 Tôi cũng tham gia vào câu lạc bộ tại trường để đốt bớt nhiệt huyết tuổi chẻ.
-
+- 🏠 Tại đây, tôi cập nhật các dự án của mình cũng như hướng dẫn sử dụng chúng.
 ### Liên hệ:
 
 📧 Email: batruong1704@gmail.com
